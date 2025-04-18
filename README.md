@@ -5,3 +5,7 @@
   https://github.com/user-attachments/assets/0df87b25-5574-4ac4-8002-4a31436895ec
 
   https://github.com/user-attachments/assets/7c64f837-1c9c-4b63-8f8c-ed4303c88d14
+
+# Vídeo expositivo do Projeto em execução-Versão 3
+  https://github.com/user-attachments/assets/1fbc657e-76f1-4f21-b01c-f07337f0a692
+
